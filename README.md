@@ -1,4 +1,7 @@
-## wip.
+## <img width="576" height="330" alt="the-results-are-in-beast-dazai-is-crowned-the-winner-of-the-v0-kk3us7ii7u8b1" src="https://github.com/user-attachments/assets/30a40fbf-ac25-40a0-bf1b-e2aec4c9c66d" />
+⊹　 ︶︶　 ୨୧　 ︶︶　 ⊹
+
+WIP.
 
 <!--
 **bandagedfreak/bandagedfreak** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
